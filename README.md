@@ -4,9 +4,6 @@ You can talk with me (maybe🧐)
 
 I'm single👌
 
-I want to become... guess🥱, it's secret
-(but it is fullstack deverloper🤣)
-
 Best Of Luck!
 
 buh bye. see ya 😀
